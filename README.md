@@ -6,11 +6,11 @@
 
 - 👯 I’m looking to collaborate on **android**
 
-- 🤝 I’m looking for help with **info@1011.digital**
+- 🤝 I’m looking for help with **canwod@canbulut.com.tr**
 
-- 💬 Ask me about **info@1011.digital**
+- 💬 Ask me about **canwod@canbulut.com.tr**
 
-- 📫 How to reach me **canwod@1011.digital**
+- 📫 How to reach me **canwod@canbulut.com.tr**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
